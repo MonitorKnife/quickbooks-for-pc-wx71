@@ -1,4 +1,4 @@
-# 
+# Enhance QuickBooks for PC | QuickBooks for Windows with updated QuickBooks for PC | QuickBooks for Windows Integration | cloud-sync + project-accounting, the #1 integration.
 
 
 
